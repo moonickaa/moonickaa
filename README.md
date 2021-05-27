@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @moonickaa
 - 👀 I’m interested in anime, kpop, wattpad.
 - 🌱 I’m currently learning optometry
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me @/ninapadilla583@gmail,com
 
 <!---
